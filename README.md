@@ -18,4 +18,4 @@ Download
 
 To access the software installation package
 
-Email: fengthaoo@gmail.com
+Email: haofeng@jiinfeng3d.org
